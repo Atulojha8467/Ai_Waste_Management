@@ -1,0 +1,1 @@
+# Ai_Waste_Management
